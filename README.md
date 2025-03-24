@@ -5,7 +5,7 @@ The name Emmanuel is given to me during my baptism as a Catholic. Wonsuk, which 
 
 In academic publications, you may find my name listed as "Wonsuk Yang." This choice was made early in my career, largely for practical reasons such as spacing constraints in research articles.
 
-While I have since realized that the meaning behind my full name might not be immediately clear to those outside of Chinese culture, I appreciate the opportunity to share its story now.
+While I have since realized that the meaning behind my full name might not be immediately clear to those outside of Chinese culture, I appreciate the opportunity to share its story behind (the name); and I always feel grateful by the support of the listening friends and fellow researchers/engineers.
 
 My name reflects my heritage, and while it may seem simple at first glance, it carries a richness that I am grateful for.
 
